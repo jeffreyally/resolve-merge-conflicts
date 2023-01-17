@@ -8,9 +8,9 @@ Charting the knowledge of the Internet, just like Galileo charted the stars.
 
 Teach all things Git, give away all the stickers, ensure world peace.
 
-### Supportocat
+### Supportodog
 
-Provide world class support to customers on the GitHub platform
+Provide world class support to....bow wow wow wow SQUIRREL! MUST CHASE. _wags tail and other dog activities_
 
 ## Skills
 
