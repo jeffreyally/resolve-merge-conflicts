@@ -8,7 +8,7 @@ Charting the knowledge of the Internet, just like Galileo charted the stars.
 
 Teach all things Git, give away all the stickers, ensure world peace.
 
-### Supportodoggie
+### SupportoHamster
 
 Provide world class support to....bow wow wow wow SQUIRREL! MUST CHASE. _wags tail and other dog activities_
 
